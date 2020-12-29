@@ -1,0 +1,2 @@
+# flipflop_adityanugraha_1187070004
+uts_ praksismik flipflop
